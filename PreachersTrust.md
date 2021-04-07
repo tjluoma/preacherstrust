@@ -28,6 +28,7 @@ Listen to good sermons at least twice a month. Use the grid and the appraisal fo
 
 ### 7) Proclaim the Gospel No Matter What
 
+Accept the prophetic role when called upon. I will not force pet issues or personal issues into the pulpit, but I will not shy away from issues of injustice, even if they may make people uncomfortable or unhappy. I commit to preaching what I believe I am called to preach, not just rant about whatever topic has recently been through the news cycle.
 
 ### 8) Preach Ethically
 
