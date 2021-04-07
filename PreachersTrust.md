@@ -12,6 +12,8 @@ Using something from that time, I will write/journal/sketch/doodle/mindmap whate
 
 Journal gratitude on a daily basis. Actively seek out new information from the sciences about things we are learning about the universe, the human mind, life, etc. Try to find out things that I didn't even know I didn't know.
 
+Find art and poetry which I can appreciate and which speak to me and inspire me.
+
 ### 4) Seek Respite in Sermon Prep
 
 
