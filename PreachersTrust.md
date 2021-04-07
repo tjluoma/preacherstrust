@@ -36,8 +36,7 @@ I pledge to investigate claims and issues well enough to trust what I will say t
 
 ### 9) Keep Learning
 
-
-
+Continually seek ways to improve my ability to communicate, not just in the pulpit but especially in the pulpit. Read about preaching, public speaking, and communicating in general. Try new/different (to me!) ways of preaching so that sermons are not always of the same kind or type. Experiment and allow the Spirit to blow where it will, even when it makes me uncomfortable.
 
 ### 10) Be Accountable
 
