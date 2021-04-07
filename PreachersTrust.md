@@ -40,7 +40,7 @@ Continually seek ways to improve my ability to communicate, not just in the pulp
 
 ### 10) Be Accountable
 
+Carefully review this Trust every September 20th, on the anniversary of my ordination. Review it at least quarterly throughout the rest of the year (around December 15th, March 15th, June 15th, which I have added to my calendar, as well as Sept 20th.)
 
-
-To be reviewed every September 20th on the anniversary of my ordination.
+I will share it with my spiritual directory and Backstory preaching colleagues, as well as tracking it in my journal.
 
