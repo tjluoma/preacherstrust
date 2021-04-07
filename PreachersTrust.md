@@ -20,8 +20,10 @@ Begin sermon prep no later than Monday of each week and spread work out over the
 
 ### 5) Trust You’re Loved
 
+Continue to work on accepting the grace, forgiveness, and love that I preach about to others. Find a spiritual director and therapist who can help me navigate the rocky shorelines of my own spiritual life and emotional/mental health.
 
 ### 6) Craft Effective Sermons
+
 
 
 ### 7) Proclaim the Gospel No Matter What
