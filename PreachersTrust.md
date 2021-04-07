@@ -10,7 +10,7 @@ Using something from that time, I will write/journal/sketch/doodle/mindmap whate
 
 ### 3) Cultivate Wonder, Curiosity, Awe, and Gratitude
 
-
+Journal gratitude on a daily basis. Actively seek out new information from the sciences about things we are learning about the universe, the human mind, life, etc. Try to find out things that I didn't even know I didn't know.
 
 ### 4) Seek Respite in Sermon Prep
 
