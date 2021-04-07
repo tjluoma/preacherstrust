@@ -16,6 +16,7 @@ Find art and poetry which I can appreciate and which speak to me and inspire me.
 
 ### 4) Seek Respite in Sermon Prep
 
+Begin sermon prep no later than Monday of each week and spread work out over the entire week, so that by the end of the week the sermon is 'finished' on Friday and can be 'mulled over' and polished on Saturday as needed. Focus on the "get to" of preaching rather than the "have to" and trust the Spirit to work through the work, rather than feeling as if I need to create a message to be heard on my own.
 
 ### 5) Trust You’re Loved
 
