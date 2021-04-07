@@ -24,7 +24,7 @@ Continue to work on accepting the grace, forgiveness, and love that I preach abo
 
 ### 6) Craft Effective Sermons
 
-
+Listen to good sermons at least twice a month. Use the grid and the appraisal form as guides to help me evaluate sermons before and after preaching them. Ask for specific feedback from specific people on a regular basis. Read at least 2-3 books on preaching each year. Look for a group which wants to do peer appraisals.
 
 ### 7) Proclaim the Gospel No Matter What
 
