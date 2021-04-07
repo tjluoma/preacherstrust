@@ -4,6 +4,8 @@ I will spend Monday - Friday from 8:00 a.m. - 9:30 a.m. in prayer, contemplation
 
 This may include reading or listening to [The Daily Lectionary](https://thedailylectionary.com) but _may not_ include recording or editing audio for the podcast.
 
+I will spend the last ~30 minutes of each day practicing the Examen as a review of the day and closing prayer.
+
 ### 2) Engage Scripture
 
 Using something from that time, I will write/journal/sketch/doodle/mindmap whatever has caught my attention that morning. To begin with I plan to use Julia Cameron’s [Morning Pages](https://juliacameronlive.com/basic-tools/morning-pages/) as my method of engagement, but this may (and possibly _should_) change over time.
