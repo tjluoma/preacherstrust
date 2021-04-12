@@ -2,13 +2,11 @@
 
 I will spend Monday - Friday from 8:00 a.m. - 9:30 a.m. in prayer, contemplation, and prayerful work: listening to, reading, or writing things to support my life of faith (not be related to sermon preparation).
 
-This may include reading or listening to [The Daily Lectionary](https://thedailylectionary.com) but _may not_ include recording or editing audio for the podcast.
-
 I will spend the last ~30 minutes of each day practicing the Examen as a review of the day and closing prayer.
 
 ### 2) Engage Scripture
 
-Using something from that time, I will write/journal/sketch/doodle/mindmap whatever has caught my attention that morning. To begin with I plan to use Julia Cameron’s [Morning Pages](https://juliacameronlive.com/basic-tools/morning-pages/) as my method of engagement, but this may (and possibly _should_) change over time.
+Using something from that time, I will write/journal/sketch/doodle/mindmap whatever has caught my attention that morning.
 
 ### 3) Cultivate Wonder, Curiosity, Awe, and Gratitude
 
@@ -18,7 +16,7 @@ Find art and poetry which I can appreciate and which speak to me and inspire me.
 
 ### 4) Seek Respite in Sermon Prep
 
-Begin sermon prep no later than Monday of each week and spread work out over the entire week, so that by the end of the week the sermon is ‘finished’ on Friday and can be ‘mulled over’ and polished on Saturday as needed. Focus on the “get to” of preaching rather than the “have to” and trust the Spirit to work through the work, rather than feeling as if I need to create a message to be heard on my own.
+Begin sermon prep no later than Monday of each week and spread work out over the entire week, so that by the end of the week the sermon is ‘finished’ on Friday and can be ‘mulled over’ and polished on Saturday as needed.
 
 ### 5) Trust You’re Loved
 
@@ -42,7 +40,7 @@ Continually seek ways to improve my ability to communicate, not just in the pulp
 
 ### 10) Be Accountable
 
-Carefully review this Trust every September 20th, on the anniversary of my ordination. Review it at least quarterly throughout the rest of the year (around December 15th, March 15th, June 15th, which I have added to my calendar, as well as Sept 20th.)
+Carefully review this Trust every September 20th, on the anniversary of my ordination.
 
 I will share it with my spiritual directory and Backstory preaching colleagues, as well as tracking it in my journal.
 
