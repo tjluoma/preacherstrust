@@ -10,29 +10,33 @@ Using something from that time, I will write/journal/sketch/doodle/mindmap whate
 
 ### 3) Cultivate Wonder, Curiosity, Awe, and Gratitude
 
-Journal gratitude on a daily basis. Actively seek out new information from the sciences about things we are learning about the universe, the human mind, life, etc. Try to find out things that I didn’t even know I didn’t know.
+Journal gratitude daily. Actively seek new information from the sciences about things we are learning about the universe, the human mind, life, etc. Try to find out things that I didn’t even know I didn’t know.
 
 Find art and poetry which I can appreciate and which speak to me and inspire me.
 
 ### 4) Seek Respite in Sermon Prep
 
-Begin sermon prep no later than Monday of each week and spread work out over the entire week, so that by the end of the week the sermon is ‘finished’ on Friday and can be ‘mulled over’ and polished on Saturday as needed.
+Knowing that my surroundings affect me, I will try to maintain a place for sermon preparation that is conducive to minimizing distractions, focusing attention, and anything else that helps it be where I enjoy being in and where I want to be.
+
+Begin sermon prep no later than Monday of each week and spread work out over the entire week so that by the end of the week, the sermon is ‘finished’ on Friday and can be ‘mulled over’ and polished on Saturday as needed.
 
 ### 5) Trust You’re Loved
 
-Continue to work on accepting the grace, forgiveness, and love that I preach about to others. Find a spiritual director and therapist who can help me navigate the rocky shorelines of my own spiritual life and emotional/mental health.
+Continue to work on accepting the grace, forgiveness, and love that I preach to others. Find a spiritual director and therapist who can help me navigate the rocky shorelines of my own spiritual life and emotional/mental health.
 
 ### 6) Craft Effective Sermons
 
-Listen to good sermons at least twice a month. Use the grid and the appraisal form as guides to help me evaluate sermons before and after preaching them. Ask for specific feedback from specific people on a regular basis. Read at least 2-3 books on preaching each year. Look for a group which wants to do peer appraisals.
+Listen to good sermons at least twice a month. Use the grid and the appraisal form as guides to help me evaluate sermons before and after preaching them. Ask for specific feedback from specific people regularly. Read at least 2-3 books on preaching each year. Look for a group that wants to do peer appraisals.
 
 ### 7) Proclaim the Gospel No Matter What
 
-Accept the prophetic role when called upon. I will not force pet issues or personal issues into the pulpit, but I will not shy away from issues of injustice, even if they may make people uncomfortable or unhappy. I commit to preaching what I believe I am called to preach, not just rant about whatever topic has recently been through the news cycle.
+I will accept the prophetic role when appropriate. I will not force pet issues or personal issues into the pulpit, but I will not shy away from issues of injustice, even if they may make people uncomfortable or unhappy. I commit to preaching what I believe I am called to preach, not just rant about whatever topic has recently been through the news cycle.
 
 ### 8) Preach Ethically
 
-I pledge to investigate claims and issues well enough to trust what I will say to be accurate to the best of my knowledge and ability. I will not simply react to things seen in passing without careful examination and consideration. I will avoid manipulation and any kind of ‘spiritual bullying’. I will also preach what I am prepared to say rather than going ‘off the cuff’ about some issue where the chances of getting facts wrong is greater. I will remember that if a message is true, it will likely be true _next_ Sunday too, and will take appropriate time to prepare a word from the Lord, rather than a word from me.
+I pledge to investigate claims and issues well enough to trust what I will say to be accurate to the best of my knowledge and ability. I make it clear to my congregation when I share stories or ideas that are not my own.
+
+I vow to use my voice to say what I believe needs to be said by me when I believe it needs to be said. I will consciously seek to avoid emotional manipulation or spiritual bullying of any kind. When I know that my words may be challenging to hear, I will weigh them extra carefully and seek the advice of trusted colleagues when appropriate.
 
 ### 9) Keep Learning
 
@@ -42,5 +46,6 @@ Continually seek ways to improve my ability to communicate, not just in the pulp
 
 Carefully review this Trust every September 20th, on the anniversary of my ordination.
 
-I will share it with my spiritual directory and Backstory preaching colleagues, as well as tracking it in my journal.
+I will share it with my spiritual director, my Backstory preaching colleagues, and track it in my journal.
 
+(Also, I plan to find a spiritual director before September 20th, 2021.)
