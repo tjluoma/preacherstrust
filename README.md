@@ -2,6 +2,10 @@
 
 This is my “Preacher’s Trust” document from Backstory Preaching.
 
+[Go here to read the current version of my “Preachers Trust”.](https://github.com/tjluoma/preacherstrust/blob/main/PreachersTrust.md)
+
+## Source abd Background
+
 See [BackstoryPreaching.com](https://www.backstorypreaching.com/) and the book [_Backstory Preaching: Integrating Life, Spirituality, and Craft_ by Lisa Cressman](https://smile.amazon.com/Backstory-Preaching-Integrating-Spirituality-Craft-ebook/dp/B07D7VHPNM) for more information.
 
 ## Definition of the Preacher’s Trust (from the book)
