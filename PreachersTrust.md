@@ -10,7 +10,7 @@ Using something from the time in item #1, I will write/journal/sketch/doodle/min
 
 ### 3) Cultivate Wonder, Curiosity, Awe, and Gratitude
 
-Journal gratitude daily. Actively seek new information from the sciences about things we are learning about the universe, the human mind, life, etc. Try to find out things that I didn’t even know I didn’t know.
+Journal gratitude regularly, at least 3-4 times each week. Actively seek new information from the sciences about things we are learning about the universe, the human mind, life, etc. Try to find out things that I didn’t even know I didn’t know.
 
 Find art/poetry which I can appreciate and which speak to me & inspire me.
 
