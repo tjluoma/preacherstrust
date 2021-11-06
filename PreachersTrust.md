@@ -6,7 +6,7 @@ I will spend the last ~30 minutes of each day practicing the Examen as a review 
 
 ### 2) Engage Scripture
 
-Using something from the time in item #1, I will write/journal/sketch/doodle/mindmap whatever has caught my attention that morning.
+Using something from the time in item #1, I will write/journal/sketch/doodle/mindmap whatever has caught my attention that day.
 
 ### 3) Cultivate Wonder, Curiosity, Awe, and Gratitude
 
