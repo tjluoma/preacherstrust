@@ -1,6 +1,6 @@
 ### 1) Pray
 
-I will spend Monday - Friday from 8:00 a.m. - 9:30 a.m. in prayer, contemplation, and prayerful work: listening to, reading, or writing things to support my life of faith (not be related to sermon preparation).
+Each weekday I will strive to spend 60-90 minutes in prayer, contemplation, and prayerful work: listening to, reading, or writing things to support my life of faith (not be related to sermon preparation).
 
 I will spend the last ~30 minutes of each day practicing the Examen as a review of the day and closing prayer.
 
