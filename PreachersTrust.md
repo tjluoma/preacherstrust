@@ -43,3 +43,6 @@ Continually seek ways to improve my ability to communicate, not just in the pulp
 ### 10) Be Accountable
 
 Carefully review this Trust every September 20th, on the anniversary of my ordination. I will share it with my spiritual director, my Backstory Preaching colleagues, and track it in my journal.
+
+
+Newest Version always available at <http://luo.ma/preacherstrust>
